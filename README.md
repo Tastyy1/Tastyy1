@@ -3,7 +3,7 @@
 🏷️ Yusuf (16) <br>
 ♈ Aries<br>
 👨‍💻 Community Moderator <br>
-🏫 Hihg School Student
+🏫 High School Student
 <br>
 <br>
 ### 🔗 Links,
