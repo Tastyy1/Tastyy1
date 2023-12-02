@@ -1,9 +1,9 @@
 ### 👋 Hello,
 
-🏷️ Yusuf (15) <br>
+🏷️ Yusuf (16) <br>
 ♈ Aries<br>
 👨‍💻 Community Moderator <br>
-🏫 Middle School Student
+🏫 Hihg School Student
 <br>
 <br>
 ### 🔗 Links,
